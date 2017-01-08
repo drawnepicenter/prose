@@ -1,3 +1,5 @@
+_Vverds of a further flawk togather_
+
 April 20th, 1620 hours.
 
 It was suck a budiful day I decided to take a walk iff the plarnk.
