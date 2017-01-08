@@ -12,7 +12,7 @@ I hated school. Did you ever have a teacher like [this?](https://github.com/draw
 
 #### WWW
 
-So shall media be [understood](https://github.com/drawnepicenter/prose/blob/master/skewl.md). Thus spake [Marshall McLuhan](https://en.wikipedia.org/wiki/Marshall_McLuhan). Manuscript culture. The medium is the message.
+So shall media be [understood](https://github.com/drawnepicenter/prose/blob/master/WWW.md). Thus spake [Marshall McLuhan](https://en.wikipedia.org/wiki/Marshall_McLuhan). Manuscript culture. The medium is the message.
 
 #### Inspiration
 
